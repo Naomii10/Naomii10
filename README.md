@@ -1,4 +1,4 @@
-### Hi there, I'm Naomi Wangui Murara 👋
+### Hi there, I'm Naomii 👋
 **Analytical Chemist | Data Scientist | Aspiring Full-Stack Web Developer**
 
 🔬 Analytical Chemist | 📊 Data Enthusiast | 💻 Developer in Progress
